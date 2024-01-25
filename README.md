@@ -15,3 +15,5 @@ Updated
 Updated Offsets
 
 Listos para ser usados " ! 
+
+Updated + SLN Discord: https://discord.gg/fRzjNChd9t
